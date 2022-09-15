@@ -1,1 +1,1 @@
-# Efetividade-da-aloca-o-de-recursos-humanos-em-Centros-de-Sa-de-e-Unidade-de-Pronto-Atendimentos-na-
+# Efetividade da alocação de recursos humanos em Centros de Saúde e Unidade de Pronto Atendimentos na redução anos de vida perdidos por morte
